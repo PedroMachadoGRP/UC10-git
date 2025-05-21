@@ -42,8 +42,11 @@
 # Links
 
  [Trailer](https://www.youtube.com/watch?v=iF4o64-LO0Q)
+
+ [Ash sendo injustiçado pela primeira vez](https://www.youtube.com/watch?v=XaxPziB9iX4)
  
  [Batalha final](https://www.youtube.com/watch?v=jS0giM14CIo)
+ 
 
  ---
 
