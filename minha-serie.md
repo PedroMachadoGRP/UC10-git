@@ -24,7 +24,7 @@
 - [x] Plots repetitivos
 - [x] Involução do protagonista
 - [x] Falta de continuidade entre as gerações
-- [x] Animção muito variante, uma hora boa outr hora horrivel
+- [x] Animção muito variante, uma hora boa outra hora horrivel
 
 ---
 
