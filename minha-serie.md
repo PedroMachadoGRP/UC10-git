@@ -64,4 +64,4 @@
 
 # Porque essa série é especial pra mim?
 
-#### Pokemon foi um dos primeiro desenhos que eu assisti, começando pela quinta geração. ela me ensinou muitos valores de amizade e companherismo, ela sempre será lembrada por mim com uma das melhores ser já feitas
+#### Pokemon foi um dos primeiro desenhos que eu assisti, começando pela quinta geração. ela me ensinou muitos valores de amizade e companherismo, ela sempre será lembrada por mim com uma das melhores séries já feitas
