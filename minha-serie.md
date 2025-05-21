@@ -12,7 +12,7 @@
 
 - James
 
-- Meow
+- Meowth
 
 - [x] Bons personagens
 - [x] Diversidade de elenco
