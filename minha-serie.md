@@ -45,6 +45,8 @@
 
  [Ash sendo injustiçado pela primeira vez](https://www.youtube.com/watch?v=XaxPziB9iX4)
  
+ [Ash sendo injustiçado pela segunda vez](https://www.youtube.com/watch?v=WRKhsEwx6iw)
+ 
  [Batalha final](https://www.youtube.com/watch?v=jS0giM14CIo)
  
 
