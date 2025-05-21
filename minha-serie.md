@@ -13,6 +13,8 @@
 - James
 
 - Meowth
+  
+---
 
 - [x] Bons personagens
 - [x] Diversidade de elenco
@@ -23,6 +25,8 @@
 - [x] Involução do protagonista
 - [x] Falta de continuidade entre as gerações
 - [x] Animção muito variante, uma hora boa outr hora horrivel
+
+---
 
 
 |Temporada| Geração |          Região           |Numero de episódios | Data | Plot    |
